@@ -8,7 +8,7 @@ My SIM career: life :) BY
 
 
 Socials: 
-Discord - @floppalinux81, Bluesky - floppalinux81.bsky.social, Facebook - Floppa Linux, Reddit - u/AffectionateDrag7203, Spotify - FloppaLinux81, Steam - FloppaLinux81, TikTok - floppalinux81, Twitch - floppalinux81, Youtube - @floppabagonetke
+Discord: @floppalinux81, Bluesky: floppalinux81.bsky.social, Facebook: - Floppa Linux: Reddit: u/AffectionateDrag7203, Spotify: FloppaLinux81, Steam:  FloppaLinux81, TikTok:  floppalinux81, Twitch: floppalinux81, Youtube: @floppabagonetke
 
 Reach me at any time if you want!
 
