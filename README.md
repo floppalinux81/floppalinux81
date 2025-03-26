@@ -1,9 +1,9 @@
 Hey! Im FloppaLinux81 (aka Floppa)
 My bio:
-Gender: Male
+Gender: Male,
 City: Pinsk (not minsk)
 Country: Belarus
-Phone: Redmi 13C
+Phone: Redmi 13C,
 My SIM career: life :) BY
 
 
