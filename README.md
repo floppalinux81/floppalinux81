@@ -13,18 +13,18 @@ Discord: @floppalinux81, Bluesky: floppalinux81.bsky.social, Facebook: - Floppa 
 Reach me at any time if you want!
 
 My favourite distros:
-Linux Mint
-Ubuntu
-Lubuntu
-Arch Linux
-Kubuntu
-Debian
-Ubuntu MATE
-Pop!_OS
-Deepin OS 20
-Fedora
-openSUSE
-Mageia
+Linux Mint,
+Ubuntu,
+Lubuntu,
+Arch Linux,
+Kubuntu,
+Debian,
+Ubuntu MATE,
+Pop!_OS,
+Deepin OS 20,
+Fedora,
+openSUSE,
+Mageia.
 
 My Discord server: https://discord.gg/5mn4wg84nB
 Have a nice day! :)
