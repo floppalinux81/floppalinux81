@@ -26,5 +26,4 @@ Fedora,
 openSUSE,
 Mageia.
 
-My Discord server: https://discord.gg/5mn4wg84nB
 Have a nice day! :)
